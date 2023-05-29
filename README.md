@@ -191,3 +191,16 @@ https://a360.co/43tEU18
 ![image](https://github.com/EloiStree3D/Fusion360Links/assets/106495897/ed5676da-3507-406c-bd18-f575161a267f)
 https://a360.co/3MZZjFM
 
+
+
+
+## Open Macro Input
+![image](https://github.com/EloiStree3D/Fusion360Links/assets/106495897/3d2a4f50-38f4-40c0-be46-a6e0aade87c9)
+https://a360.co/43c3UdD
+
+
+![image](https://github.com/EloiStree3D/Fusion360Links/assets/106495897/11ba801c-c143-40a3-b547-08baab53c93d)
+https://a360.co/3MZKVgG
+![image](https://github.com/EloiStree3D/Fusion360Links/assets/106495897/3cfcfee7-ce8e-4d59-bae0-8c3b92b680b7)
+https://a360.co/3MZKVgG
+
